@@ -8,7 +8,7 @@ The value of questions in from the **pondering**.  *That's IT!* There's nothing 
 
 The value is certainly not from some canonaical answer ... that answer is helpful, when it is used appropriately as a starting off point ... not the SETTLED SCIENCE of some heretical belief system, like the trumped up religiousity of the so-called "settled science" of the climate change zealots.
 
-The VALUE is from the pondering **through the ages**, that's why the Heidelberg Catechism is the catechism of my elders ... [as someone who is now finally older](AsAnOldGuyNow.md) I have finally reached the point where I was able to realize that my elders were fallible and deeply aware of their own fallibility, I did not understand the importance of the pondering, RATHER than settling on answer. The necessity of dwelling on the side of pondering RATHER than seeking a settled answer is what Science is about.
+The VALUE is from the pondering **through the ages**, that's why the Heidelberg Catechism is the catechism of my elders ... [as someone who is now finally older](AsAnOldGuyNow.md) I have finally reached the point where I was able to realize that my elders were fallible and deeply aware of their own fallibility, I did not understand the importance of the pondering, RATHER than settling on answer ... fortunately, *[I'm not as old as I once was, I so much younger than that now](https://www.youtube.com/watch?v=rGEIMCWob3U)* The necessity of dwelling on the side of pondering RATHER than seeking a settled answer is what Science is about.
 
 ## The AWESOME PONDERING of the Heidelberg Catechism
 
