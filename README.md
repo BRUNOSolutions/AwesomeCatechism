@@ -1,10 +1,10 @@
 # The power of EXAMPLE
 
-We are still learning that [Archetypal Repository](TheArchetype.md) which lays out the [example list for Awesome Lists of Awesome Lists](TheArchetype.md).
+We are still learning that [Archetypal Repository](https://github.com/sindresorhus/awesome) which laid the foundation for the example of listification in [the Awesome Lists of Awesome Lists](TheArchetype.md).
 
 ## Why are questions important?
 
-It is in the pondering ... not the fixed answer.
+The value of questions in from the pondering ... it's not the canonaical answer ... it's from the pondering **through the ages**.
 
 First of all, we should under that this repository is about AWESOME QUESTIONS that make up something like the Heidelberg Catechism.  Pondering the QUESTIONS, rather than merely reciting the answers are how catechisms actually work. These questions and the attempts to providing *starting point* answers to begin the pondering ar the AWESOME examples of lists of profound questions to ponder.
 
