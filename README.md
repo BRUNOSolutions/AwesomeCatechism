@@ -1,8 +1,16 @@
 # The power of EXAMPLE
 
-We learn a LOT from the [Archetypal Repository](ArchetypeReadme.MD) which lays out the example for Awesome Lists of Awesome Lists
+We are still learning that [Archetypal Repository](TheArchetype.md) which lays out the [example list for Awesome Lists of Awesome Lists](TheArchetype.md).
 
-These repositories are full of mistakes, but their INTENTION is to serve as the start of something that might become an example ... the INTENTION of this is honor the highest and best intentions of one's elders, to respect one's traditions, to be a more genuine Christian and less of a conforming churchgoer.
+## Why are questions important?
+
+It is in the pondering ... not the fixed answer.
+
+First of all, we should under that this repository is about AWESOME QUESTIONS that make up something like the Heidelberg Catechism.  Pondering the QUESTIONS, rather than merely reciting the answers are how catechisms actually work. These questions and the attempts to providing *starting point* answers to begin the pondering ar the AWESOME examples of lists of profound questions to ponder.
+
+We have to emphasize that it's not that the answers are even close perfect. The answers are starting points or hints or things to start thinking about ... the AWESOMENESS is in the pondering and contemplation. The answers are, like code all repositories, ONLY intended to be the starting points or *jumping off points* for a foundation of greater study ... the journey of pondering the questions is what it's all about ... the answers are still in progress ... ***UNLESS we have wrongly chosen to worship the calcified idolatry of the fixed answer.***
+
+Of course, repositories like this one will be more than full enough of mistakes but the INTENTION is to serve as the start of study list that might eventually become a decent example ... the INTENTION of studying the Classics or studying something like Heidelberg Catechism is to honor the highest and best intentions of the humility of one's elders ... it's not about ancestor worship, it's about a tradition of humble searching ... to be a more genuine Christian ... rather than being an overly pious, conformity-demanding churchgoer.
 
 Stop **just** *telling* people that you are a Christian ... the real *tell*, as the expression is used in playing poker or bluffing, is that phony christians are still need to preach to others ... that's the *TELL* ... ALL Christians are still phony to a large degree, if they are even partly honest with themselves, because they evangelically realize WHY the preaching is for themselves, since they are not yet good enough enough examples of Christianity YET.
 
@@ -10,7 +18,7 @@ Rather than just preach, it is necessary to commit to working daily on the disci
 
 So I'm preaching to myself ... but you can listen to my little introspective pep talk monologue if you want ... but you really don't have to, because this pep talk is about my PERSONAL attempt to remind myself to work harder on my discipline. That's all.
 
-I tell myself to:
+The old habits of being myself get in the way of pondering and contemplation ... I try remind myself to:
 
 * Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-ass, goody two shoes, sunday school kiddie song, form of PRETEND *christianity.*
 
@@ -18,7 +26,7 @@ I tell myself to:
 
 * If you want to BE a Christian, then **you** have BE a better Christian than you are right now.
 
-* YOU need to work harder, from right now onward at changing *you* ... YOU have to up your discipline game. EVERY. SINGLE. MOMENT. OF. EVERY. DAY.
+I especially try to remind myself that I need to work harder, from right now onward at changing *me* ... I have to up my discipline game. EVERY. SINGLE. MOMENT. OF. EVERY. DAY.
 
 
 ## The Heidelberg Catechism is the catechism of my elders; it's now becoming mine.
