@@ -4,9 +4,9 @@ We are still learning that [Archetypal Repository](https://github.com/sindresorh
 
 ## Why are questions important?
 
-The value of questions in from the **pondering**
+The value of questions in from the **pondering**.  *That's IT!* There's nothing that is more important about the question than the pondering of it.
 
-The value is certainly not from some canonaical answer ... that answer is there as a starting off point ... not the SETTLED SCIENCE of some heretical belief system, like the trumped up religiousity of the so-called "settled science" of the climate change zealots.
+The value is certainly not from some canonaical answer ... that answer is helpful, when it is used appropriately as a starting off point ... not the SETTLED SCIENCE of some heretical belief system, like the trumped up religiousity of the so-called "settled science" of the climate change zealots.
 
 The VALUE is from the pondering **through the ages**, that's why the Heidelberg Catechism is the catechism of my elders ... until I realized that my elders were fallible and deeply aware of their own fallibility, I did not understand the importance of the pondering, RATHER than settling on answer. The necessity of dwelling on the side of pondering RATHER than seeking a settled answer is what Science is about.
 
