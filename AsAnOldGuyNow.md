@@ -1,8 +1,16 @@
-First of all, the study of scripture should not be relegated to the realm of ***Pious Trivial Pursuit*** or some *parler* trick ... that's the kind of sanctimonious bullshit that really wrankles and is a big part of why non-Christians find Christians so detestable ... because Christian are detestable when they judge ... when they do not allow for any critique but instead sieze the judgemental roles of Pharisaical scripture-quoting and embrace the shameful hypocrisy of believing they have the full authority of knowing what God wants. 
+First of all, the study of scripture should not be relegated to the realm of ***Pious Trivial Pursuit*** or some sort of *parler* trick where someone congratulates themselves for memorization or being familiar with translations, commentaries or bible study tools ... that's the kind of sanctimonious nerd bullshit that really wrankles and the arrogance of implying a special understanding of what God thinks is a big part of why non-Christians find Christians so detestable ... because Christians ARE detestable and *oh-so-[judgeable](https://www.biblestudytools.com/matthew/7-1.html)* whenever they judge.
+
+Study scripture in order to PONDER ... to contemplate ... allow for critique and debate. Resist lapsing into Pharisaical scripture-quoting to judge. Eschew the shameful hypocrisy of having ANY authority whatsoever of having the faintest idea of knowing what God wants. 
 
 ## It's not the KNOWING of the answers, but rather the PONDERING of the question.
 
-Pondering the QUESTIONS, rather than merely reciting the answers are how catechisms actually ***work*** to rewire the subconscious of movements that are built on the PONDERERS ... it's NOT the pride-filled pastors trying to lead the parade, but RATHER is entire body of true believers pondering the questions humbly and living out the questions in their lives.  It's all about the PONDERING ... it's all about the future ... it's not about settled, pickled science that are sealed in the vaults of sacred casks ... PRACTICAL faith and optimism is about the PONDERING. 
+*PONDER THE QUESTIONS.*
+
+Pondering the QUESTIONS, rather than merely reciting the answers are how catechisms actually ***do work*** to rewire the subconscious brains of thousands or millions in movements that are built entirely on the humility of PONDERING.
+
+It's NOT the pride-filled televangelists trying out a full-throated oratory to lead the parade ... but RATHER the strength is in humility and entire body of true believers not knowing, but pondering the questions humbly and living out the questions in the laboratories of their lives.  
+
+It's all about the PONDERING ... and the value of that is all about the future, ie what comes after all of us are long gone ... it's not about settled, pickled science that are sealed in the vaults of sacred casks ... PRACTICAL faith and optimism is about the PONDERING. 
 
 The questions of the Heidelberg Catechism matter for the pondering ... the answers are nothing but attempts to providing a *starting point* begin from.
 
