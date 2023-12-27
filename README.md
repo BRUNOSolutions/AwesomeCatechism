@@ -1,12 +1,18 @@
 # The power of EXAMPLE
 
-We are still learning that [Archetypal Repository](https://github.com/sindresorhus/awesome) which laid the foundation for the example of listification in [the Awesome Lists of Awesome Lists](TheArchetype.md).
+We are all about lists and listification ... although we still learning about how to do list from that [Archetypal AWESOME Repository](https://github.com/sindresorhus/awesome) which laid the foundation for the example of listification in [the Awesome Lists of Awesome Lists](TheArchetype.md).
 
 ## Why are questions important?
 
-The value of questions in from the **pondering**.  *That's IT!* There's nothing that is more important about the question than the pondering of it.
+At its core, a catechism is nothing more than a list of questions with answers.
 
-The value is certainly not from some canonaical answer ... that answer is helpful, when it is used appropriately as a starting off point ... not the SETTLED SCIENCE of some heretical belief system, like the trumped up religiousity of the so-called "settled science" of the climate change zealots.
+Before you load up the topic of catechism with all sorts of religious baggage and HATE ... first, try to understand that the value of a list of questions in from the **pondering**.  ***That's IT!*** 
+
+*There's nothing that is more important about the list of questions than the attention that people devote to thinking deeply and SKEPTICALLY as they go over the question in thein minds ... it's not the rote memorization, but the PONDERING that grows out of it.* Memorization USED TO BE IMPORTANT because humans did not have books and information technologies that came after books to store and retrieve information.  Memorization was the only way to do this with information ... so the PONDERING came later, after someone had devoted the time and energy to memorization ... the important thing we should be going for is the PONDERING, thinking, rethinking, contemplating and rewiring brains for the structure of the information. 
+
+There's almost zero value in *just blindly accepting* a list ... or the answers that some authority figure has canonaically associated with a question on the list. The *just accepted* answer is almost always some sort of forced, lowest-common-denominator truth ... if it's just accepted and recited, it's almost a lie ... likely to be a bit of personal **heresy** because it's not OWNED.
+
+The value is certainly not from some canonaical answer ... even though even a lowest common denominator answer can be helpful, when it is used appropriately as a starting off point ... not the SETTLED SCIENCE of some heretical belief system, like the trumped up religiousity of the so-called "settled science" of the climate change zealots, ie it's WAY MORE COMPLICATED than carbon dioxide trapping heat ... that's how it's supposed to work, optimally -- carbon-based life forms exhale carbon-dioxide and photosynthesizing lifeforms convert carbon-dioxide into complex carbons that result in much more LIFE and more diversity ... when IDIOTS view carbon dioxide as the enemy, they start down to path toward the ecological catastrophe that comes from failing to PONDER complex issues ... so it's literally a matter of **LEARN HOW TO PONDER ... OR KILL OFF ALL OF THE LIVING SPECIES ON THE PLANET!**
 
 The VALUE is from the pondering **through the ages**, that's why the Heidelberg Catechism is the catechism of my elders ... [as someone who is now finally older](AsAnOldGuyNow.md) I have finally reached the point where I was WRONG ... I was trying to respect my elders, but I as not able to have the the humility that comes from age and facing death. I could not appreciate then what I know now, but I am grateful for finally being able to realize that my elders were not just fallible but deeply and profoundly aware of their own fallibility.  I did not understand the importance of the just pondering RATHER than the pride that comes speaking up and belting out the tune the old audience wants to hear. Fortunately, *[I'm not as famous as I once was, I am so much more anonymous than that now](https://www.youtube.com/watch?v=rGEIMCWob3U&t=155s)*
 
